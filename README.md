@@ -5,6 +5,7 @@
 ***-{SHIPS DNI!!}(/_;)/~~***
 -
 -
+-
 sonamy:no,js NO,feel free to go to the trash if u ship sonamy dudes.
 
 shadzamy:who ever created this ship and made stupid fucking ass people ship it,go to hell.
@@ -17,7 +18,8 @@ sonouge:js..disgusting.
 -[DNI](*｀Д´)ノ！！！
 -
 -
--basic dni. people that acts very weird and makes alot of sex jokes. if someone boops me alot and does not talk,dni,DNI. if someone ships any of these dni ships,litterly dni bae.
+-***basic dni. people that acts very weird and makes alot of sex jokes. if someone boops me alot and does not talk,dni,DNI. if someone ships any of these dni ships,litterly dni bae.***
+-
 -☆SHIPS INT!☆(^▽^)/★☆♪
 ☆SONADOW♡ ROUAMY♡ ☆KNUXROUGE AND MORE BUT NOT ANY OF THE DNI ONES! ^^^^^^^^^^^^&^^^^,^^^^^ [INT]-
 -
@@ -50,27 +52,28 @@ W2C:whisper to contact
 -☆MY LOVELY POOKIES!♡(≧∀≦)
 -
 -
-♡lancevi
+***♡lancevi***
 
-☆Flamesii
+***☆Flamesii***
 
-☆soulivv
+***☆soulivv***
 
-♡floatingflyx
+***♡floatingflyx***
 
-☆X10o
+***☆X10o***
 
-☆NightBubbles
+***☆NightBubbles***
 
-♡paltokazz
+***♡paltokazz***
 
-☆CELLCON
+***☆CELLCON***
 
-☆xwardenx
+***☆xwardenx***
 
-♡ILoveFleetway
+***♡ILoveFleetway***
 
-☆BADENDTHEATER
+***☆BADENDTHEATER***
+-
 -PEOPLE DNI!
 -
 -
