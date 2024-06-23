@@ -71,13 +71,13 @@ W2C:whisper to contact
 
 ***☆BADENDTHEATER***
 
-***♡INSANE-TIGER***
+***☆INSANE-TIGER***
 
-***☆gencide***
+***♡gencide***
 
 ***☆izuutsumi***
 
-***♡MetallicDemise***
+***☆MetallicDemise***
 -
 -PEOPLE DNI!
 -
