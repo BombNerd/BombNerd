@@ -55,27 +55,29 @@ W2C:whisper to contact
 -☆MY LOVELY POOKIES!♡(≧∀≦)
 -
 -
-***♡lancevi***
-
-***☆Flamesii***
+***♡Flamesii***
 
 ***☆soulivv***
 
-***♡floatingflyx***
+***☆floatingflyx***
 
-***☆X10o***
+***♡NightBubbles***
 
-***☆NightBubbles***
-
-***♡paltokazz***
+***☆paltokazz***
 
 ***☆CELLCON***
 
-***☆xwardenx***
-
-***♡ILoveFleetway***
+***♡xwardenx***
 
 ***☆BADENDTHEATER***
+
+***♡INSANE-TIGER***
+
+***☆gencide***
+
+***☆izuutsumi***
+
+***♡MetallicDemise***
 -
 -PEOPLE DNI!
 -
