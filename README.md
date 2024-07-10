@@ -61,27 +61,25 @@ W2C:whisper to contact
 
 ***☆floatingflyx***
 
-***♡NightBubbles***
-
-***☆paltokazz***
+***♡paltokazz***
 
 ***☆CELLCON***
 
-***♡xwardenx***
+***☆xwardenx***
 
-***☆BADENDTHEATER***
+***♡BADENDTHEATER***
 
 ***☆INSANE-TIGER***
 
-***♡gencide***
+***☆gencide***
 
-***☆izuutsumi***
+***♡izuutsumi***
 
 ***☆MetallicDemise***
 
-***♡XAYBITES***
+***☆XAYBITES***
 
-***☆KnuxTheEchidna***
+***♡KnuxTheEchidna***
 -
 -PEOPLE DNI!
 -
@@ -90,6 +88,14 @@ W2C:whisper to contact
 ☝️🤓riorson
 
 ☝️🤓irlsonic
+
+X10o
+
+Lancevi
+
+zxnic
+
+NightBubbles
 
 ☆♡☆♡☆♡☆♡☆♤☆♤☆♤☆♤☆♡☆♡☆♡☆♡☆♡☆
 
