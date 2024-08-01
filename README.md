@@ -24,7 +24,7 @@ sonouge:js..disgusting.
 -***basic dni. people that acts very weird and makes alot of sex jokes. if someone boops me alot and does not talk,dni,DNI. if someone ships any of these dni ships,litterly dni bae.***
 -
 -☆SHIPS INT!☆(^▽^)/★☆♪
-☆SONADOW♡ ROUAMY♡ ☆KNUXROUGE AND MORE BUT NOT ANY OF THE DNI ONES! ^^^^^^^^^^^^&^^^^,^^^^^ [INT]-
+☆SONADOW♡ ☆KNUXROUGE AND MORE BUT NOT ANY OF THE DNI ONES! ^^^^^^^^^^^^&^^^^,^^^^^ [INT]-
 -
 -
 
