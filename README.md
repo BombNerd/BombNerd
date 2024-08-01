@@ -91,8 +91,6 @@ W2C:whisper to contact
 
 ☝️🤓riorson
 
-☝️🤓irlsonic
-
 X10o
 
 Lancevi
