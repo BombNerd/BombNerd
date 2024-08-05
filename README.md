@@ -59,31 +59,27 @@ W2C:whisper to contact
 
 ***☆soulivv***
 
-***☆floatingflyx***
+***☆paltokazz***
 
-***♡paltokazz***
+***♡xwardenx***
 
-***☆CELLCON***
-
-***☆xwardenx***
-
-***♡BADENDTHEATER***
+***☆BADENDTHEATER***
 
 ***☆INSANE-TIGER***
 
-***☆gencide***
+***♡gencide***
 
-***♡izuutsumi***
+***☆izuutsumi***
 
 ***☆MetallicDemise***
 
-***☆XAYBITES***
+***♡XAYBITES***
 
-***♡KnuxTheEchidna***
+***☆KnuxTheEchidna***
 
 ***☆acornious***
 
-***☆shadowislil***
+***♡shadowislil***
 -
 -PEOPLE DNI!
 -
