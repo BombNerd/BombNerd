@@ -9,13 +9,13 @@
 -
 -
 -
-sonamy:no,js NO,feel free to go to the trash if u ship sonamy dudes.
+sonamy
 
-shadzamy:who ever created this ship and made stupid fucking ass people ship it,go to hell.
+shadzamy
 
-silblaze:js not into that.
+sonouge
 
-sonouge:js..disgusting.
+rouamy
 ---------__-------------------_-
 
 -[DNI](*｀Д´)ノ！！！
@@ -80,6 +80,10 @@ W2C:whisper to contact
 ***☆acornious***
 
 ***♡shadowislil***
+
+***☆akutawangafanboy***
+
+***☆axiiety***
 -
 -PEOPLE DNI!
 -
