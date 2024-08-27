@@ -85,7 +85,7 @@ W2C:whisper to contact
 
 ***☆akutawangafanboy***
 
-***☆axniiety***
+***☆anxiiety***
 -
 -PEOPLE DNI!
 -
