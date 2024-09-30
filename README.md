@@ -86,6 +86,8 @@ W2C:whisper to contact
 ***☆anxiiety***
 
 ***♡bazlnka***
+
+***☆punZluvv***
 -
 -PEOPLE DNI!
 -
@@ -93,13 +95,9 @@ W2C:whisper to contact
 
 ☝️🤓riorson
 
-X10o
+- fushilta 
 
-Lancevi
 
-zxnic
-
-NightBubbles
 
 ☆♡☆♡☆♡☆♡☆♤☆♤☆♤☆♤☆♡☆♡☆♡☆♡☆♡☆
 
