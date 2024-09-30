@@ -67,8 +67,6 @@ W2C:whisper to contact
 
 ***☆BADENDTHEATER***
 
-***☆INSANE-TIGER***
-
 ***♡gencide***
 
 ***☆izuutsumi***
