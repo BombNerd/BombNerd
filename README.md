@@ -37,6 +37,4 @@
 
 ***☆drayywoo***
 
-***☆ccherrypie***
-
-***♡maenoia***
+***☆maenoia***
