@@ -7,17 +7,9 @@
 
 ***☆soulivv***
 
-***☆crushphila***
-
-***♡xwardenx***
-
-***☆BADENDTHEATER***
-
 ***♡gencide***
 
 ***☆izuutsumi***
-
-***♡XAYBITES***
 
 ***☆acornious***
 
